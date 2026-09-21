@@ -1,0 +1,1 @@
+# card_de_RESUMO_DE_PEDIDO
